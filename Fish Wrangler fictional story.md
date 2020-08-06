@@ -11,12 +11,21 @@ Arrlt wrote notes in the air in front of him on his virtual pad with one of his 
 # Output
 
 Earth
+
 When Arrlt first arrived on the planet, he was not prepared for the environmental factors that Earth presented. After he had donned his breather mask, he ventured out of his airship and looked around.
+
 "My fishies, my fishies!" He called out, knowing they would hear his sonic voice. But he could not see any fish. All he saw were water covered mountains, rolling hills of grass, and forests of enormous trees. He could not see any oceans, lakes, rivers, or streams, or any bodies of water at all. He looked down at his virtual pad to check his position and noticed he was at the exact coordinates where the original survey had indicated the largest ocean to be. He started walking down the hill towards the ocean, looking for a way to get into the water. As he got closer, he could see the trees in the distance, but the forest had not grown on this part of the planet. He looked back up at the ocean.
+
 "Why can't I see any fish? Where are my fishies?"
+
 Arrlt heard a voice from the woods and looked around. He could not see anyone or anything in the forest. He heard the voice again, "Are you looking for fish?" Arrlt turned around and looked at the trees. He heard the voice again, "I can help you find some fish, if you like." Arrlt was surprised to see a tall figure emerge from the trees. It was a humanoid with a thin body, long arms, and long legs. It had a head with no eyes, ears, or nose, just a mouth with a smiling face.
+
 "You can talk?" Arrlt asked, "And you can see?"
+
 "Yes, yes, and yes," the humanoid said. "My name is Scott, what is your name?"
+
 "I am Arrlt, I am from planet Fishfright, I am here to find some fish."
+
 "You have come to the right place, Arrlt, there are plenty of fish here," Scott said, smiling his big smile. "I can help you find them."
+
 "But I am looking for 30,000 simple fish species, as last surveyed.
